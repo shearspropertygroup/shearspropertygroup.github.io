@@ -1,1 +1,0 @@
-# shearspropertygroup.github.io
